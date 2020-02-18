@@ -1,1 +1,1 @@
-https://duboiskayaolga.github.io/rsschool-cv/
+https://duboiskayaolga.github.io/rsschool-cv/cv
